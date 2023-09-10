@@ -34,7 +34,7 @@ lo and behold, with a phone number in plain sight. I called him immediately and 
 
 Okay.
 
-Let the record show that 1. the unusual aura that I sometimes emanate is not a voluntary phenomenon, and 2. I was wearing my normal clothes.
+Let the record show that 1. the unusual aura that I sometimes emanate is an involuntary phenomenon witnessed more easily by people I am close to, and 2. I was wearing my normal outdoor clothes. Normal outfit.
 
 When the sun had just started crouching near the skyline, the gates opened and a strange and slightly wrinkly man walked out, rolling forth a mountain bike.
 
